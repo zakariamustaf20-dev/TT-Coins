@@ -1,1 +1,1 @@
-# TT-Coins
+10000# TT-Coins
